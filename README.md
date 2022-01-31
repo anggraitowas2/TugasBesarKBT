@@ -9,6 +9,7 @@ Kami disini sebagai perantara atau middleman untuk kebutuhan bertransaksi dengan
 Copyright(c)2022
 
 Barokah Consignment
+  
 Anggraito Waspada (201910370311094)
 Fathur Adryan Nur (201910370311035)
 Syaifuddin, S.Kom, M.Kom
