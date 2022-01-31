@@ -12,6 +12,8 @@ Barokah Consignment
   
 Anggraito Waspada (201910370311094)
 Fathur Adryan Nur (201910370311035)
+  
 Syaifuddin, S.Kom, M.Kom
+  
 Universitas Muhammadiyah Malang
 
